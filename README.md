@@ -1,5 +1,8 @@
 ### Iae meus bons 👋
 
+Como sobreviver ao projeto integrador? Deixem dicas abaixo👇
+
+Ass: Um sobrevivente
 <!--
 **JoseJefferson304/JoseJefferson304** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
