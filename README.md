@@ -9,7 +9,7 @@ TOP 10:
 ![image](https://user-images.githubusercontent.com/101147555/202453154-80cbf0b2-18fb-4947-a0f4-13dc3dc4f570.png)
 
 
-2º Rosinha
+2º Jully Lopo
 
 ![image](https://user-images.githubusercontent.com/101147555/202453733-256ddc72-0210-49b2-be0e-e436058adc16.png)
 
