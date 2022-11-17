@@ -5,10 +5,11 @@ Segue a baixo os melhores Hentais para vocês se animarem👇
 TOP 10:
 
 1º Euphoria
-![pngegg (2)](https://user-images.githubusercontent.com/101147555/202452631-98eadfd7-d234-4300-9f9c-4bab49dd616c.png)
+
+![image](https://user-images.githubusercontent.com/101147555/202453154-80cbf0b2-18fb-4947-a0f4-13dc3dc4f570.png)
 
 2º Overflow
-![image](https://user-images.githubusercontent.com/101147555/202452009-86d7ef39-5d3c-40b5-83d3-1a3f78b43045.png)
+![image](https://user-images.githubusercontent.com/101147555/202453237-d44aef30-d03c-4c03-903e-0f6519d75724.png)
 
 3º Kiss x Sis
-![image](https://user-images.githubusercontent.com/101147555/202452145-0959e7a2-31e5-4f51-8830-ff39f66b2395.png)
+![image](https://user-images.githubusercontent.com/101147555/202453389-901122cb-cfdd-40d7-9f36-8dd72abc65bf.png)
