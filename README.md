@@ -1,6 +1,6 @@
 ### Iae meus Bons colegas de punhos eguidos 👋
 
-Segue a baixo os melhores Desenhos Bestas para vocês se animarem👇
+Segue a baixo os melhores Desenhos Educativos para vocês se animarem👇
 
 ## TOP 10:
 
